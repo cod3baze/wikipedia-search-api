@@ -1,0 +1,1 @@
+# tradução automática do sistema
